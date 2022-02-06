@@ -9,6 +9,8 @@
 
 zhss1983@gmail.com
 
+https://linkedin.com/ - появится позже, когда появится.
+
 <!---
 - 👋 Hi, I’m @zhss1983
 - 👀 I’m interested in ...
