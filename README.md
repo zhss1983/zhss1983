@@ -9,7 +9,7 @@
 
 zhss1983@gmail.com
 
-https://linkedin.com/ - появится позже, когда появится.
+[linkedin.com](https://www.linkedin.com/in/сергей-жаров-455972229/).
 
 <!---
 - 👋 Hi, I’m @zhss1983
