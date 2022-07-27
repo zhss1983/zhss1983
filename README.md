@@ -9,6 +9,8 @@
 
 zhss1983@gmail.com
 
+zhss.83@yandex.ru
+
 [linkedin.com](https://www.linkedin.com/in/сергей-жаров-455972229/).
 
 <!---
